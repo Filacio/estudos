@@ -7,3 +7,5 @@ Espero concluir todas as tarefas e me tornar o que eu sempre quis ser
 - **cientista de dados**
 - **especialista em cyber segurança**
 - **business intelingent**
+- **amor pelos meus pais**
+- **amor pelo meu filho filartes**
